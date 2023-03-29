@@ -9,4 +9,5 @@ Please, feel free to ask me anything that you might want to because I am going t
 You can also try to reach me on my email address: _mciancio.figueiredo@gmail.com_.
 
 Thank you for dropping by,
-Miguel.
+
+M.
